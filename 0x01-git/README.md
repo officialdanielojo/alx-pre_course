@@ -1,1 +1,1 @@
-Daniel is great
+Daniel is amazing
